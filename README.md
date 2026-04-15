@@ -1,20 +1,9 @@
-### Who am I?
-## WHO AM I?
-# WHO AM I????
+# hello internet
+<img src="https://media.tenor.com/acsosPHLzD0AAAAe/urgurg.png" style="width: 4rem; aspect-ratio: 1/1;">
 
-Honestly... **idk.**
+**I am Poly!** <br>
+I make fun internet stuffs, like [GlitchHub](https://pongonpolygon.github.io/GlitchHub/), or [Jax Dance](https://pongonpolygon.github.io/glitchhub_games/Jax/)! I'm always trying to improve my skills, and make even cooler stuff, so I hope you can enjoy cruising the web with all the cool stuff im doing.
 
-Welcome to my github page where I have most of my website stuff, maybe some games and software in the future if i become ✨**_smert_**✨.<br>
-idk
-## Check out my website!!
-**⬇️ PLS DO I HAVE COOL STUFFS ⬇️**<br>
-**[click meh](https://pongonpolygon.github.io)**<br>
-That link goes to https://pongonpolygon.github.io...<br>
-But mah motha also let me use https://reecemiller.com 😁
+If you wanna help out, [message me on discord](https://discord.com/users/799724320590790667) @pongonpolygon!
 
-### oh yeah!
-If u want my socials it actually on [my page!](https://pongonpolygon.github.io)
-
----
-anyway if u want my adhd in ur head go ahead ig<br>
-<img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50"><img src="https://media.tenor.com/mkKsX7zppEgAAAAM/dancing-hug.gif" alt="stop looking fatty" width="50" height="50">
+🥺
