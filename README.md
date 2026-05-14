@@ -1,9 +1,8 @@
-# hello internet
-<img src="https://media.tenor.com/acsosPHLzD0AAAAe/urgurg.png" style="width: 4rem; aspect-ratio: 1/1;">
+# hello internet!
 
 **I am Poly!** <br>
-I make fun internet stuffs, like [GlitchHub](https://pongonpolygon.github.io/GlitchHub/), or [Jax Dance](https://pongonpolygon.github.io/glitchhub_games/Jax/)! I'm always trying to improve my skills, and make even cooler stuff, so I hope you can enjoy cruising the web with all the cool stuff im doing.
+I make fun internet games, with a future on [pongon.org](https://pongon.org)! I like doing web development for the special ability of being usable anywhere, so thank you for checking out my stuff!
 
 If you wanna help out, [message me on discord](https://discord.com/users/799724320590790667) @pongonpolygon!
 
-🥺
+<sub><sub>oh and i have ADHD</sub></sub>
